@@ -9,4 +9,9 @@ deve ser feita em vídeo explicativo através do preenchimento da tabela de entr
 atividades disponibilizada no Moodle da disciplina
 
 ![image](https://github.com/user-attachments/assets/e42c89d5-1b5a-438f-a3e2-86016e6cf621)
-[![Watch the video](https://youtu.be/DgfQ8wSnlQU)
+
+
+
+https://github.com/user-attachments/assets/e923c148-081c-4f27-a23b-c070c5b6a948
+
+https://www.youtube.com/watch?v=DgfQ8wSnlQU
